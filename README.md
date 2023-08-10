@@ -1,2 +1,2 @@
-# resume
-Court Kizer's Resume
+# Court Kizer's Resume
+Hey There!
