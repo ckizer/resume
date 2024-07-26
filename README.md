@@ -1,2 +1,2 @@
-# Court Kizer's Resume
+# Court Kizer's - Designer Resume
 Hey There!
